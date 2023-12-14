@@ -1,1 +1,0 @@
-# Sale_Black_Friday
